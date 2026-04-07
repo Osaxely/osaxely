@@ -31,4 +31,4 @@ I may update this Privacy Policy from time to time. You are advised to review th
 
 ## Contact Me
 
-If you have any questions or suggestions regarding this Privacy Policy, please do not hesitate to contact me at: **osaxely33@gmail.com**.
+If you have any questions or suggestions regarding this Privacy Policy, please do not hesitate to contact me at: **owner@osaxely.com**.
